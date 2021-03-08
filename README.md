@@ -1,4 +1,4 @@
-Visit it here: https://vibrant-pare-f26214.netlify.app/
+Visit it here: https://explore-greece.netlify.app/
 
 
 
